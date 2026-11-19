@@ -1,3 +1,3 @@
 # Promotion-TGB
 
-Promotion 2025 de TGB Talent
+Promotion 2024 de TGB Talent
